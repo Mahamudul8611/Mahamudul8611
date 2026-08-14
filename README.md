@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mahamudul8611
 - 👀 I’m interested in Gaming
-- 🌱 I’m currently learning C and C++
+- 🌱 I’m currently learning Cloud System and Cybersecuirty
 - 📫 How to reach me mahamudulsiraj8611@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Chatgpt is my best enemy but I still use to do my work
