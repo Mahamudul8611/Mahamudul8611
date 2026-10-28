@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning Cloud System and Cybersecuirty
 - 📫 How to reach me mahamudulsiraj8611@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Chatgpt is my best enemy but I still use to do my work
 - :) MY CERT for recruiter: https://coursera.org/verify/professional-cert/SK0GPJJAJWR
 
 <!---
